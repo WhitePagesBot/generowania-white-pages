@@ -1,0 +1,1 @@
+# generowania-white-pages
